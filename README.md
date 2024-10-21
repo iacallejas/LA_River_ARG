@@ -1,1 +1,1 @@
-# LA_River_ARG
+# The Influence of Urbanization and Water Reclamation Plants on Fecal Indicator Bacteria and Antibiotic Resistance in the Los Angeles River Watershed: A Case Study with Complementary Monitoring Methods
